@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Ai and software engineer**
 
-- 📫 How to reach me **Walidohh@gmail.com**
+- 📫 How to reach me **messebahwalid25@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
